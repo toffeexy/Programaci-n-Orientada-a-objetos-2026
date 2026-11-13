@@ -6,4 +6,4 @@ https://1drv.ms/b/c/caf15caa6e028320/IQBlQkRQMsnyRqWltwjxeg6XAcKpROTg5_cPnYHmHxV
 ## Actividad #3
 https://1drv.ms/b/c/caf15caa6e028320/IQDMjlacCDmkS6v5NXoDy1-1AViqdO_UMtN0VLKJMXv5T2s?e=em0e7l
 ## Actividad #4
-[Ejercicios.Actividad.4-2026.2.pdf](Ejercicios.Actividad.4-2026.2.pdf)
+[Ejercicios.Actividad.4-2026.2.pdf](Ejercicios.Actividad.4-2026-2 .pdf)
